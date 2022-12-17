@@ -1,2 +1,2 @@
 # I'm doing great I guess.
-Grit Grit Grit
+ Work smarter not harder.
